@@ -3,7 +3,7 @@
  I'm currently enrolled at NC State taking the software development bootcamp to expand my knowledge in current technologies and plan to shift to future technologies after graduation. 
  My focus is to change careers and see what opportunities come my way in the tech field.
  
-- 🌍 Raleigh, NC
+- 🌍 North Carolina
 - ✉️ Contact me at robinson.jaleesa42@gmail.com
 - ⚡ Fun facts: Enjoy powerlifting, cooking, doing research because knowledge is power
 - 🧠 Currently learning Cybersecurity & Python 
