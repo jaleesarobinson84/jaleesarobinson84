@@ -25,6 +25,8 @@ SKILLS
 ![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/b284413a-ba3f-42e5-b0ce-533b92584469)
 ![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/5181a0da-e4b8-405f-b0eb-b5b95fff409c)
 ![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/0235e7ae-5011-4a49-b4e1-999bfba9e714)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/690bd943-df31-4b3b-9392-d973b5dc3ad8)
+
 
 
 
