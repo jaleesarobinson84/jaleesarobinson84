@@ -16,6 +16,24 @@ SKILLS
 ![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/3469237d-a65c-4879-a7dd-84ed9dc4e440)
 ![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/d4026319-9ca7-4876-8d97-e5f7996accb6)
 ![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/6e23487b-bf35-454e-8837-0a6363db9990)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/e6e7d94b-1695-47fd-ac28-4d2868c77646)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/c2da5e09-3d4e-45a9-bb52-f17f7ab84603)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/1ebf891c-8c59-4e4f-997b-855e8ebe14d8)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/4821e853-7041-4f30-863c-afdcef7f81df)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/9e4e4263-6a5d-4d9c-9578-078600266564)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/b5bbf86b-e2d7-4f10-b045-d6cf14aa3c91)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/b284413a-ba3f-42e5-b0ce-533b92584469)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/5181a0da-e4b8-405f-b0eb-b5b95fff409c)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/0235e7ae-5011-4a49-b4e1-999bfba9e714)
+
+
+
+
+
+
+
+
+
 
 SOCIALS
 
