@@ -35,7 +35,6 @@ SKILLS
 
 
 
-
 SOCIALS
 
 <img src="https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/c9beeb07-3b9d-4660-abbf-65e1296a73fc" width="50" height="50">
