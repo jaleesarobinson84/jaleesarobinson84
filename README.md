@@ -5,7 +5,7 @@
  
 - ✉️ Contact me at robinson.jaleesa42@gmail.com
 - ⚡ Fun facts: Enjoy powerlifting, cooking, doing research because knowledge is power
-- 🧠 Currently learning Cybersecurity & Python 
+- 🧠 Currently learning Saas
 
 SKILLS
 
