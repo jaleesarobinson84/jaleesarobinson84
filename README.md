@@ -4,7 +4,7 @@
  My focus is to change careers and see what opportunities come my way in the tech field.
  
 - ✉️ Contact me at robinson.jaleesa42@gmail.com
-- ⚡ Fun facts: Enjoy powerlifting, cooking, doing research because knowledge is power
+- ⚡ Fun facts: Enjoy powerlifting, HIIT, cooking, doing research because knowledge is power
 - 🧠 Currently learning Saas
 
 SKILLS
