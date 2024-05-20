@@ -9,7 +9,7 @@
 
 SKILLS
 
-![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/c4d48a47-5547-41f7-a8eb-2619998319c6)
+![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/c4d48a47-5547-41f7-a8eb-2619998319c6 | width=100)
 ![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/c0cbaa17-310a-49c0-8a78-5daf07097154)
 ![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/6650d7aa-2181-4edf-9116-7b80060d0d80)
 ![image](https://github.com/jaleesarobinson84/jaleesarobinson84/assets/147563229/3469237d-a65c-4879-a7dd-84ed9dc4e440)
