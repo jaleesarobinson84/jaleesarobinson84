@@ -5,7 +5,7 @@
  
 - ✉️ Contact me at robinson.jaleesa42@gmail.com
 - ⚡ Fun facts: Enjoy powerlifting, HIIT, cooking, doing research because knowledge is power
-- 🧠 Currently learning Saas
+- 🧠 Currently building a dating application
 
 SKILLS
 
