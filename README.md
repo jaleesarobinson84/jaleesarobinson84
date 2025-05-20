@@ -1,11 +1,10 @@
  Hi! I'm Jaleesa Robinson
 
- I'm currently enrolled at NC State taking the software development bootcamp to expand my knowledge in current technologies and plan to shift to future technologies after graduation. 
- My focus is to change careers and see what opportunities come my way in the tech field.
+ I'm currently studying data analytics, and focusing gaining all the knowledge needed to enter into the tech field with confidence.
  
 - ✉️ Contact me at robinson.jaleesa42@gmail.com
-- ⚡ Fun facts: Enjoy powerlifting, HIIT, cooking, doing research because knowledge is power
-- 🧠 Currently building a dating application
+- ⚡ Fun facts: Enjoy powerlifting, fitness instructor for HIIT classes, cooking, doing research because knowledge is power
+- 🧠 Currently learning Excel, Python, SQL, PowerBi, and ChatGPT
 
 SKILLS
 
